@@ -151,16 +151,16 @@ This section is devoted to costumers who sell their wares over the internet.
 
 Patterns
 
-* [Nuada Succellus: Unique Costume Patterns](http://arafel.hypermart.net/)
-* [Sense and Sensibility Patterns](http://www.sensibility.com/pattern/)
+* [Nuada Succellus: Unique Costume Patterns](http://arafel.hypermart.net/) [Archive](https://web.archive.org/web/20020124021931/http://arafel.hypermart.net:80/)
+* [Sense and Sensibility Patterns](http://www.sensibility.com/pattern/) [Archive](https://web.archive.org/web/20150215234455/http://www.directcon.net:80/wander/simp.htm)
 * [Review: Simplicity Patterns' New Elizabethan Gown](http://www.directcon.net/wander/simp.htm)
 * [Patterns from the Past](http://www.oldpatterns.com/)
 * [Patterns of Time](http://www.patternsoftime.com/)
-* [How-To and Pattern Links](http://www.costumes.org/pages/howtopat.htm)
-* [Joann Fabric and Crafts Online](http://www.joann.com/index.stm)
+* [How-To and Pattern Links](http://www.costumes.org/pages/howtopat.htm) [Archive](https://web.archive.org/web/20030823161105/http://www.costumes.org:80/PAGES/howtopat.htm)
+* [Joann Fabric and Crafts Online](http://www.joann.com/)
 * [Simplicity Patterns Online](http://www.simplicity.com/) - Simplicity has many of their pattens pictured in an on-line catalogue. Check out the Costumes section for some new Renaissance patterns!
 * [McCalls Patterns Online](http://www.mccall.com/)
-* [MoiRandall's Patterns](http://members.aol.com/randwhit/moirandall.html)
+* [MoiRandall's Patterns](http://www.moirandalls.com/)
 * [FabricLink](http://www.fabriclink.com/home.html) - a great online resource for fabrics and textiles.
 * [Fabric Club: Wholesale Mail-order Fabrics](http://www.fabricclub.com/)
 
